@@ -1,3 +1,3 @@
 Auother Name - Balvant kushwaha <Br>
-All Program collegr pratical.<br>
+All Program college pratical.<br>
 According  to syllbus . pratical progrma .
